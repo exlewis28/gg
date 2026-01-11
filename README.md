@@ -9,6 +9,7 @@ Hytale — это sandbox нового поколения, где ты може�
 ### 🔗 Присоединяйся по ссылке
 
 **[https://discord.gg/xsBqg8mYkF](https://discord.gg/xsBqg8mYkF)**
+
 **[https://discord.gg/xsBqg8mYkF](https://discord.gg/xsBqg8mYkF)**
 
 ![screenshot](https://static0.hardcoregamerimages.com/wordpress/wp-content/uploads/2025/11/hytalefeature.jpg)
